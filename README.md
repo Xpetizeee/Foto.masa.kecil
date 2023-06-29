@@ -1,0 +1,1 @@
+# Foto.masa.kecil
